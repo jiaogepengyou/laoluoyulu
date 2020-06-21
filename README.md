@@ -3,12 +3,17 @@
 # 彷徨
 * 高中辍学
 * 摆摊
+* [新东方万字求职信](https://www.douban.com/note/24144264/)
 # 理想主义
 ## 新东方语录
 * 精华
 * 完整语录
-## 创办牛博网
-## 支持汶川地震
+## 一个理想主义创业故事
+* [I](https://www.bilibili.com/video/BV12x411Q7nQ?from=search&seid=2002360211965474810)
+* [II](https://www.bilibili.com/video/BV16s411475R?from=search&seid=2002360211965474810)
+* [III](https://www.bilibili.com/video/BV1pt411E7JJ?from=search&seid=2002360211965474810)
+## 牛博网
+* [【汶川地震10周年纪念】罗永浩牛博网对四川地震的援助活动](https://www.bilibili.com/video/BV1Xp411o71t?from=search&seid=10670338419152776527)
 ## 西蒙子冰箱
 # 工匠精神
 ## Smartisan OS
