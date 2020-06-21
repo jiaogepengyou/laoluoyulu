@@ -38,6 +38,9 @@
 *  创业在路上([书籍](https://item.jd.com/12413059.html))
 ## 头条收购
 # 交个朋友
+## 抖音带货
+## 脱口秀节目
+# 东山再起
 
 # 关注罗永浩
 * [微博](https://weibo.com/laoluoyonghao)
