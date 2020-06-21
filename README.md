@@ -30,8 +30,8 @@
 * 捐赠
 
 ## 互联网史上第一约架
-* [B站视频](https://www.bilibili.com/video/av51927184/)
-* [罗永浩辩论水平如何？](https://www.bilibili.com/video/BV1vC4y147Ta?from=search&seid=3091776868537324014）)
+* [舌战视频](https://www.bilibili.com/video/av51927184/)
+* [辩论解析：罗永浩辩论水平如何？](https://www.bilibili.com/video/BV1vC4y147Ta?from=search&seid=3091776868537324014）)
 ## 历届发布会
 ## 长谈
 * 罗振宇长谈节目（[视频]()）
