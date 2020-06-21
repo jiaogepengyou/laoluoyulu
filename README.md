@@ -6,8 +6,9 @@
 * [新东方万字求职信](https://www.douban.com/note/24144264/)
 # 理想主义
 ## 新东方语录
-* 精华
-* 完整语录
+### 精华
+* [罗永浩、李国庆最新对口相声《离婚太难了》](https://weibo.com/tv/v/J7eSG2i0X?fid=1034:4517252796710916)
+### 完整版
 ## 一个理想主义创业故事
 * [I](https://www.bilibili.com/video/BV12x411Q7nQ?from=search&seid=2002360211965474810)
 * [II](https://www.bilibili.com/video/BV16s411475R?from=search&seid=2002360211965474810)
