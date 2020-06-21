@@ -38,7 +38,7 @@
 ## 头条收购
 # 交个朋友
 
-# 关注
+# 关注罗永浩
 * [微博](https://weibo.com/laoluoyonghao)
 * 抖音号：luoyonghao
 * [交个朋友](http://t.tt/)
